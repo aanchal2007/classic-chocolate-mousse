@@ -1,0 +1,1 @@
+Chocolate Mousse is thick, rich, creamy, and a perfect dessert for entertaining! Not only is it pretty, everyone gets their own serving, and you can make it a day ahead of time. It makes any dinner feel a little more fancy!
